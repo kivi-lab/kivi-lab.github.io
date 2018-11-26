@@ -1,2 +1,2 @@
-# kivi-lab.github.io
-www
+# 키비랩 (KIVI LAB LLC)
+Coming Soon!
